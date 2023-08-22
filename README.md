@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about .Net and Harleys kkk
 - 📫 How to reach me: kaiquejunio.af@gmail.com or 📞(14)98186-1140
-- 😄 Pronouns: Inglish and Espanish
+- 😄 Languages: Inglish and Espanish
 - ⚡ Fun fact: I Love Games 🎮
 
